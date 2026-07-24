@@ -26,7 +26,7 @@
 </p>
 
 <p align="center">
-  idk what else to put here sorry i promise im super nice i love making new friends and talking about our interests i luv frank iero and mister romance 🙏🙏🙏 blah blah blah yap yap yap
+  idk what else to put here sorry i promise im super nice i love making new friends and talking about our interests i luv frank iero and mister romance 🙏🙏🙏 blah blah blah yap yap yap i'll put more here later i swearrr
   </p>
 
   <p align="center">
