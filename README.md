@@ -11,8 +11,7 @@
 </p> 
   
  
-  <p align="center"> We are a traumagenic system. We don't want to argue over syscourse, we think it's immature and silly. We don't necessarily believe endogenic systems/plurals are faking but we believe hate and harassment is entirely unwarranted. DID and OSDD variants are heavily under researched and people that think they are plural may have another disorder, bullying will not help them discover more about themselves nor help the world further understand more about these kinds of disorders. We are open to calm discussions with close friends about these topics. 
-  (also isnt the whole point of the brain forming alternate identities to protect itself from trauma? these people could just be really good at protecting themselves but what do we know..) </p> 
+  <p align="center"> We are a traumagenic system. We don't want to argue over syscourse, we think it's immature and silly. idk man i just dont gaf if you think someones faking  </p> 
   
   <p align="center">
 <img src="https://64.media.tumblr.com/a779dbf6f9f98f9db733d75aae220c8f/ccacf763bb972491-f0/s2048x3072/06d589aa301e94cdd8a6a44fc29eb610ac9ded04.pnj"/>
