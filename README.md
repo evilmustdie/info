@@ -11,7 +11,7 @@
 </p> 
   
  
-  <p align="center"> We are a traumagenic system. We don't want to argue over syscourse, we think it's immature and silly. idk man i just dont gaf if you think someones faking  </p> 
+  <p align="center"> We are a traumagenic system. We don't want to argue over syscourse, we think it's immature and silly. idk man i just dont gaf if you think someones faking. erm also like. we're very autistic and have a personality disorder and maybe schizoaffective. gulps and some other stuff we can seem short or rude sometimes I PRROMISE ITS NOT PERSONAL I DONT MEAN ITTTT pls still be our friend kicks rocks </p> 
   
   <p align="center">
 <img src="https://64.media.tumblr.com/a779dbf6f9f98f9db733d75aae220c8f/ccacf763bb972491-f0/s2048x3072/06d589aa301e94cdd8a6a44fc29eb610ac9ded04.pnj"/>
