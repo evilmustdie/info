@@ -11,7 +11,7 @@
 <p align="center">
     <img src="https://static2.klipy.com/ii/da290b156d64898341638f3c299e7478/68/bb/mkWnbndB.gif" width="120" height="110"/>
   </p>
-  <p align="center"> I LOVE CONTRADICTING IDENTITIES!!!! GENDER IS FAKE!!! PISS WHEREEVER AND KISS WHOEVER ♡♡
+  <p align="center"> <b> I LOVE CONTRADICTING IDENTITIES!!!! GENDER IS FAKE!!! PISS WHEREEVER AND KISS WHOEVER ♡♡ </b>
   </p>
  <p align="center">
 <img src="https://i.pinimg.com/736x/d7/83/8c/d7838c20d79f0730612ef2dd73375bc6.jpg" width="650" height="250" />
