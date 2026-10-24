@@ -8,9 +8,7 @@
 <p align="center">
   idk what else to put here sorry i promise im super nice i love making new friends and talking about our interests i luv frank iero and mister romance 🙏🙏🙏 blah blah blah yap yap yap i'll put more here later i swearrr
   </p>
-<p align="center">
-    <img src="https://static2.klipy.com/ii/da290b156d64898341638f3c299e7478/68/bb/mkWnbndB.gif" width="120" height="110"/>
-  </p>
+
   <p align="center"> <b> I LOVE CONTRADICTING IDENTITIES!!!! GENDER IS FAKE!!! PISS WHEREEVER AND KISS WHOEVER ♡♡ </b>
   </p>
  <p align="center">
