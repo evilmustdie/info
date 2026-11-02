@@ -1,6 +1,6 @@
 ## ☆ XTRA INFO ☆
 
-  <p align="center"> We are a traumagenic system. We don't want to argue over syscourse, we think it's immature and silly. idk man i just dont gaf if you think someones faking (we're unsure what our stance on endos is. got better shit to do yk). erm also like. we're very autistic and have a personality disorder and have occassional paranoid/delusional episodes. gulps and some other stuff we can seem rude or just a little Off sometimes I PRROMISE ITS NOT PERSONAL I DONT MEAN ITTTT pls still be our friend kicks rocks </p> 
+  <p align="center"> We are a traumagenic system. We don't want to argue over syscourse, we think it's immature and silly. idk man i just dont gaf if you think someones faking (we're unsure what our stance on endos is. got better shit to do yk). erm also like. we're very autistic and have a personality disorder and have occassional paranoid/delusional episodes. ontop of some other stuff we can seem rude or just a little Off sometimes I PRROMISE ITS NOT PERSONAL I DONT MEAN ITTTT pls still be our friend kicks rocks </p> 
  <p align="center">
 <img src="https://64.media.tumblr.com/50315fede71a61aba8c694dfe8ed0766/c77c5cb9d9641c71-a4/s540x810/f434c7dcfa236e148bbe64dc64a7fcb4d6ad4d1c.pnj"width=900/>
 </p> 
